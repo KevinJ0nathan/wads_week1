@@ -9,3 +9,6 @@ Kepulauan Indonesia terbentuk melalui berbagai aktivitas tektonis yang sangat ko
 Dari kumpulan fosil manusia purba Homo erectus (atau manusia Jawa) dan Homo floresiensis ("manusia Flores") yang pernah menetap di Indonesia, kuat dugaan bahwa kepulauan Indonesia telah dihuni oleh manusia purba tersebut sekurang-kurangnya antara dua juta sampai 500.000 tahun yang lalu. Manusia purba tersebut kemudian berangsur-angsur punah seiring dengan kedatangan manusia modern (Homo sapiens) di kepulauan Indonesia.[34][35]
 
 Gelombang migrasi manusia modern pertama kali sampai di kepulauan Indonesia melalui jalur darat sekitar 60.000 tahun yang lalu. Gelombang pertama ini menjadi nenek moyang dari bangsa Melanesia.[36][37] Kemudian sekitar 3.500–1.500 SM, bangsa Austronesia yang berasal dari Taiwan tiba melalui jalur laut dan menetap di kepulauan Indonesia. Sebagian bangsa Melanesia yang telah ada lebih dahulu terdesak ke wilayah-wilayah timur jauh, sementara sebagian lagi berasimilasi dengan pendatang tersebut.[36][38][39] Manusia yang menetap tersebut kemudian mengembangkan budaya bercocok tanam dan melaut.[40]
+
+## Skibidi
+skibidi
